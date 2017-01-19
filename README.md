@@ -13,3 +13,5 @@ Normally, both your asses would be dead as fucking fried chicken, but you happen
 | Diehard | 1992 |
 | Diehard 4 | 2012 |
 ##### Hakuna matata
+
+[Github opastusta](https://guides.github.com/)
