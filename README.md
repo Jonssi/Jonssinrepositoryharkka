@@ -8,5 +8,8 @@ Normally, both your asses would be dead as fucking fried chicken, but you happen
 ### Päivä on huoleton
 [Willien Bruuce](http://tinyurl.com/herepwm)
 #### Filosofiaa, näin on se vaan
-
+| Leffa | julkkari | 
+|:------|---------:|
+| Diehard | 1992 |
+| Diehard 4 | 2012 |
 ##### Hakuna matata
