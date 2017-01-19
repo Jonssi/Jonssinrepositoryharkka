@@ -6,7 +6,7 @@ Normally, both your asses would be dead as fucking fried chicken, but you happen
 
 
 ### Päivä on huoleton
-
+[Willien Bruuce](http://tinyurl.com/herepwm)
 #### Filosofiaa, näin on se vaan
 
 ##### Hakuna matata
